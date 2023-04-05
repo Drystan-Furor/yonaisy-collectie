@@ -1,0 +1,21 @@
+---
+title: TITLE
+date: 2022-DATE-DATE 20:01:01 +0100
+categories: [Main, Sub]
+tags: [a tag name]     # TAG names should always be lowercase
+---
+
+
+body
+
+
+
+
+
+
+***
+> Start daily exercises [in the Code Gym](https://codegym.cc/)
+{: .prompt-tip }
+
+# [Start with: Start your journey to become a Java Developer]({% link _posts/2022-12-01-start.md %})
+# [Continue with: Spring]({% link _posts/2022-12-08-spring.md %})
