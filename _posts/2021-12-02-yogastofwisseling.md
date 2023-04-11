@@ -16,6 +16,9 @@ spijsvertering. Hier zijn enkele voorbeelden:
 > stimuleert de stofwisseling.
 {: .prompt-info }
 
+{% include embed/youtube.html id='gyUHCCCOqX8' %}
+
+
 ## Surya Namaskar (Zonnegroet):
 
 > Deze reeks van houdingen en bewegingen, gericht op de zon, helpt bij het verbeteren van de
