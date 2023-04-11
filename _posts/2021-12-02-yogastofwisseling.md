@@ -17,7 +17,7 @@ spijsvertering. Hier zijn enkele voorbeelden:
 {: .prompt-info }
 
 {% include embed/youtube.html id='gyUHCCCOqX8' %}
-{% include embed/youtube.html id='gyUHCCCOqX8' %}
+
 
 
 ## Surya Namaskar (Zonnegroet):
