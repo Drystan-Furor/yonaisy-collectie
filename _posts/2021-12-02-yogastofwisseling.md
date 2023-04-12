@@ -17,6 +17,11 @@ spijsvertering. Hier zijn enkele voorbeelden:
 {: .prompt-info }
 
 
+## Surya Namaskar (Zonnegroet):
+
+> Deze reeks van houdingen en bewegingen, gericht op de zon, helpt bij het verbeteren van de
+> bloedcirculatie en het verhogen van de stofwisseling.
+{: .prompt-info }
 
 
 - Als je denkt dat je last hebt van een trage stofwisseling, zijn er verschillende dingen die je kunt doen om je
