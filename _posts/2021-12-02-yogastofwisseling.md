@@ -11,7 +11,7 @@ spijsvertering. Hier zijn enkele voorbeelden:
 
 
 ## Kapalbhati Pranayama:
-
+{% include embed/youtube.html id='gyUHCCCOqX8' %}
 > Deze ademhalingsoefening helpt bij het verhogen van de zuurstoftoevoer naar het lichaam en
 > stimuleert de stofwisseling.
 {: .prompt-info }
@@ -67,3 +67,10 @@ spijsvertering. Hier zijn enkele voorbeelden:
   stofwisseling.
 
 - Overweeg krachttraining: Krachttraining kan helpen bij het opbouwen van spiermassa, wat de stofwisseling kan verbeteren.
+
+
+***
+
+> Het is belangrijk om te onthouden dat elke yogastijl unieke voordelen biedt en dat het kiezen van de juiste yogastijl
+> afhankelijk is van je persoonlijke behoeften en doelen.
+{: .prompt-warning }
