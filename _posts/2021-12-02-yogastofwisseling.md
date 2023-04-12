@@ -17,6 +17,35 @@ spijsvertering. Hier zijn enkele voorbeelden:
 {: .prompt-info }
 
 
+## Surya Namaskar (Zonnegroet):
+
+> Deze reeks van houdingen en bewegingen, gericht op de zon, helpt bij het verbeteren van de
+> bloedcirculatie en het verhogen van de stofwisseling.
+{: .prompt-info }
+
+## Navasana (Boot houding):
+
+> Deze houding helpt bij het versterken van de buikspieren en de spijsvertering te verbeteren.
+{: .prompt-info }
+
+## Bhujangasana (Cobra houding):
+
+> Deze houding helpt bij het strekken van de buik en het stimuleren van de spijsvertering.
+{: .prompt-info }
+
+## Dhanurasana (Booghouding):
+
+> Deze houding helpt bij het versterken van de rugspieren en het verbeteren van de
+> spijsvertering.
+{: .prompt-info }
+
+## Pavanamuktasana (Wind verlichtende houding):
+
+> Deze houding helpt bij het stimuleren van de spijsvertering en het
+> verminderen van gasvorming en opgeblazen gevoel.
+{: .prompt-info }
+
+
 - Als je denkt dat je last hebt van een trage stofwisseling, zijn er verschillende dingen die je kunt doen om je
   stofwisseling te verbeteren:
 
