@@ -4,7 +4,17 @@ date: 2021-12-02 20:01:01 +0100
 categories: [Yoga, stofwisseling]
 tags: [stofwisseling yoga]     # TAG names should always be lowercase
 ---
+# Stimuleren van de stofwisseling Yoga
 
+Er zijn verschillende yoga-oefeningen die kunnen helpen bij het stimuleren van de stofwisseling en het verbeteren van de
+spijsvertering. Hier zijn enkele voorbeelden:
+
+
+## Kapalbhati Pranayama:
+
+> Deze ademhalingsoefening helpt bij het verhogen van de zuurstoftoevoer naar het lichaam en
+> stimuleert de stofwisseling.
+{: .prompt-info }
 
 
 - Als je denkt dat je last hebt van een trage stofwisseling, zijn er verschillende dingen die je kunt doen om je
