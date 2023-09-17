@@ -22,7 +22,7 @@ opmerking over het heerlijke weer maakt klagen zij over de warmte. en als jij ee
 kapsel, zeggen ze dat de kleur is mislukt. Je zult merken dat je zulke mensen gaat mijden, want dit soort negativiteit
 is behoorlijk besmettelijk.
 
-![signal-2023-09-16-202317_002.jpeg](../assets/img/custom/sorted/signal-2023-09-16-202317_002.jpeg)
+![signal-2023-09-16-202317_002.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202317_002.jpeg)
 
 ![signal-2023-09-16-202317_003.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202317_003.jpeg)
 
