@@ -40,10 +40,6 @@ is behoorlijk besmettelijk.
 
 ![signal-2023-09-16-202317_010.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202317_010.jpeg)
 
-***
-
-11 t/m 20
-
 ![signal-2023-09-16-202317_011.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202317_011.jpeg)
 
 ![signal-2023-09-16-202317_012.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202317_012.jpeg)
