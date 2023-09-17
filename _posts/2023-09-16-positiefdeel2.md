@@ -1,8 +1,8 @@
 ---
 title: De kracht van positief denken Deel 2
-date: 2023-09-16 20:01:01 +0100
+date: 2023-09-16 20:02:01 +0100
 categories: [ Denken, Positief ]
-tags: [ positief, denken, deel 1 ]     # TAG names should always be lowercase
+tags: [ positief, denken, deel 2 ]     # TAG names should always be lowercase
 ---
 
 # De Kracht van Positief Denken Deel 2
