@@ -5,7 +5,7 @@ categories: [ Denken, Positief ]
 tags: [ positief, denken, deel 2 ]     # TAG names should always be lowercase
 ---
 
-# De Kracht van Positief Denken Deel 2
+# Deel 2: De Kracht van Positief Denken 
 
 11 t/m 20
 
