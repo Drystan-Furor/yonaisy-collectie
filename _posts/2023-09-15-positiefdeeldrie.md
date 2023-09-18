@@ -5,9 +5,9 @@ categories: [ Denken, Andersom ]
 tags: [ positief, denken]     # TAG names should always be lowercase
 ---
 
-# Deel 2: De Kracht van Positief Denken 
+# Deel 3: Positief Denken 11 t/m 20
 
-11 t/m 20
+
 
 ![signal-2023-09-16-202317_011.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202317_011.jpeg)
 
