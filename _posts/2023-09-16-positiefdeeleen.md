@@ -2,11 +2,11 @@
 title: De kracht van positief denken Deel 1
 date: 2023-09-16 20:01:01 +0100
 categories: [ Denken, Positief ]
-tags: [ positief, denken]     # TAG names should always be lowercase
+tags: [ positief, denken ]     # TAG names should always be lowercase
 pin: true
 ---
 
-# Deel 1: De Kracht van Positief Denken 
+# Deel 1: De Kracht van Positief Denken
 
 2 t/m 10
 
@@ -27,7 +27,14 @@ is behoorlijk besmettelijk.
 
 ### Houd je gezicht naar de zon gericht en je ziet geen schaduwen
 
-Toch hebben we er allemaal van tijd tot tijd last van.
+Toch hebben we er allemaal van tijd tot tijd last van en in sommige situaties is het heel lastig om uit die negatieve
+gedachten te komen. Want soms is het leven nu eenmaal moeilijk. Je kunt je baan verliezen en vol goede moed aan het
+solliciteren gaan, maar constant worden afgewezen. Op zo'n moment valt het niet mee om fris en vrolijk aan je volgende
+brief te beginnen. Of je relatie wordt verbroken, je huisdier overlijdt, je verliest een dierbare. Allemaal situaties
+die echt niet van de goede kant te zien zijn.
+
+Gelukkig is het toch mogelijk om positief in het leven te staan, zelfs als je bijzonder nare situaties meemaakt. In dit
+boek vol positiviteit lees je hoe.
 
 ![signal-2023-09-16-202317_003.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202317_003.jpeg)
 
