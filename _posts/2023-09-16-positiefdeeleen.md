@@ -38,6 +38,25 @@ boek vol positiviteit lees je hoe.
 
 ![signal-2023-09-16-202317_003.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202317_003.jpeg)
 
+### VERGELIJK JEZELF NIET MET ANDEREN. JE KUNT DE ZON EN DE MAAN NIET VERGELIJKEN, ZE SCHIJNEN ELK OP HUN EIGEN TIJD. HET GEVAAR VAN NEGATIVITEIT
+
+Het is gemakkelijker negatief te denken dan positief. Overal worden we erop gewezen dat we dingen niet goed doen: we
+zitten te veel, we moeten afvallen, de wereld staat in brand... Op alle vlakken lijkt het of we niet goed bezig zijn.
+Doodgewone zaken zoals nieuws en sociale media kunnen ons leven knap lastig maken.
+
+#### Waarom denken we zo gemakkelijk negatief?
+
+Onze hersenen bevatten meer receptoren voor negatieve zaken dan voor positieve. Dat stamt nog uit de oertijd. Er lag
+overal gevaar op de loer, van een roofdier tot een rivaliserende stam; het was flink uitkijken geblazen. Om te overleven
+moest je constant alert zijn op gevaar (negatief) en voedsel vinden (positief). Lukte het een dag niet om voedsel te
+vinden, dan overleefde je dat wel. Nieuwe dag, nieuwe kansen. Lukte het een dag niet om gevaar te ontwijken, dan was de
+kans groot dat er geen nieuwe dag kwam.
+
+Dat verklaart waarom we het negatieve zo goed onthouden. Deze eigenschap was dus nodig om te overleven.
+We hebben die eigenschap nu niet meer nodig. Sterker nog: we hebben
+er last van. Het is dus hoog tijd om ons op de goede dingen in ons leven te
+concentreren!
+
 ![signal-2023-09-16-202317_004.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202317_004.jpeg)
 
 ![signal-2023-09-16-202317_005.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202317_005.jpeg)
@@ -53,79 +72,3 @@ boek vol positiviteit lees je hoe.
 ![signal-2023-09-16-202317_010.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202317_010.jpeg)
 
 # [Lees verder: Deel 2: De Kracht van Positief Denken ]({% link _posts/2023-09-17-positiefdeeltwee.md %})
-
-
-![signal-2023-09-16-202429_011.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202429_011.jpeg)
-
-![signal-2023-09-16-202429_012.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202429_012.jpeg)
-
-![signal-2023-09-16-202429_013.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202429_013.jpeg)
-
-![signal-2023-09-16-202429_014.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202429_014.jpeg)
-
-![signal-2023-09-16-202429_015.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202429_015.jpeg)
-
-![signal-2023-09-16-202429_016.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202429_016.jpeg)
-
-![signal-2023-09-16-202429_017.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202429_017.jpeg)
-
-![signal-2023-09-16-202429_018.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202429_018.jpeg)
-
-![signal-2023-09-16-202429_019.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202429_019.jpeg)
-
-![signal-2023-09-16-202429_020.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202429_020.jpeg)
-
-![signal-2023-09-16-202429_021.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202429_021.jpeg)
-
-![signal-2023-09-16-202429_022.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202429_022.jpeg)
-
-![signal-2023-09-16-202429_023.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202429_023.jpeg)
-
-![signal-2023-09-16-202429_024.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202429_024.jpeg)
-
-![signal-2023-09-16-202429_025.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202429_025.jpeg)
-
-![signal-2023-09-16-202429_026.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202429_026.jpeg)
-
-![signal-2023-09-16-202429_027.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202429_027.jpeg)
-
-![signal-2023-09-16-202429_028.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202429_028.jpeg)
-
-![signal-2023-09-16-202429_029.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202429_029.jpeg)
-
-![signal-2023-09-16-202429_030.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202429_030.jpeg)
-
-![signal-2023-09-16-202429_031.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202429_031.jpeg)
-
-![signal-2023-09-16-202429_032.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202429_032.jpeg)
-
-![signal-2023-09-16-202429_033.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202429_033.jpeg)
-
-![signal-2023-09-16-202508_002.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202508_002.jpeg)
-
-![signal-2023-09-16-202508_003.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202508_003.jpeg)
-
-![signal-2023-09-16-202508_004.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202508_004.jpeg)
-
-![signal-2023-09-16-202508_005.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202508_005.jpeg)
-
-![signal-2023-09-16-202508_006.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202508_006.jpeg)
-
-![signal-2023-09-16-202508_007.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202508_007.jpeg)
-
-![signal-2023-09-16-202508_008.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202508_008.jpeg)
-
-![signal-2023-09-16-202508_009.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202508_009.jpeg)
-
-![signal-2023-09-16-202508_010.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202508_010.jpeg)
-
-![signal-2023-09-16-202508_011.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202508_011.jpeg)
-
-![signal-2023-09-16-202508_012.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202508_012.jpeg)
-
-![signal-2023-09-16-202508_013.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202508_013.jpeg)
-
-![signal-2023-09-16-202508_014.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202508_014.jpeg)
-
-![signal-2023-09-16-202508_015.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202508_015.jpeg)
-
