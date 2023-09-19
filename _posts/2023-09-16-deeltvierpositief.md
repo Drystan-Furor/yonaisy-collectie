@@ -1,6 +1,6 @@
 ---
 title: Deel 4 De kracht van positief denken 
-date: 2023-09-19 20:03:01 +0100
+date: 2023-09-16 23:03:01 +0100
 categories: [ Denken, Vier ]
 tags: [ positief, denken]     # TAG names should always be lowercase
 ---
