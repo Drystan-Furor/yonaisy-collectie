@@ -25,7 +25,11 @@ is behoorlijk besmettelijk.
 
 ![signal-2023-09-16-202317_002.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202317_002.jpeg)
 
-![signal-2023-09-16-202317_003.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202317_003.jpeg)
+### Houd je gezicht naar de zon gericht en je ziet geen schaduwen
+
+Toch hebben we er allemaal an tijd tot tijd last van
+
+![signal-2023-09-16-202317_003.jpeg](../assets/img/custom/sorted/signal-2023-09-16-202317_003.jpeg)
 
 ![signal-2023-09-16-202317_004.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202317_004.jpeg)
 
