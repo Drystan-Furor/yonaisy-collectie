@@ -1,7 +1,7 @@
 ---
 title: Deel 3 De kracht van positief denken 
-date: 2023-09-18 20:01:01 +0100
-categories: [ Denken, Positief ]
+date: 2023-09-18 20:03:01 +0100
+categories: [ Denken, Drie ]
 tags: [ positief, denken]     # TAG names should always be lowercase
 ---
 
