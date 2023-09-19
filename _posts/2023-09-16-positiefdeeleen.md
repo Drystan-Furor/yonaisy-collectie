@@ -27,9 +27,9 @@ is behoorlijk besmettelijk.
 
 ### Houd je gezicht naar de zon gericht en je ziet geen schaduwen
 
-Toch hebben we er allemaal an tijd tot tijd last van
+Toch hebben we er allemaal van tijd tot tijd last van.
 
-![signal-2023-09-16-202317_003.jpeg](../assets/img/custom/sorted/signal-2023-09-16-202317_003.jpeg)
+![signal-2023-09-16-202317_003.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202317_003.jpeg)
 
 ![signal-2023-09-16-202317_004.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202317_004.jpeg)
 
