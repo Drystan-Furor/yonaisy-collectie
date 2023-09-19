@@ -30,3 +30,5 @@ tags: [ positief, denken]     # TAG names should always be lowercase
 ![signal-2023-09-16-202429_009.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202429_009.jpeg)
 
 ![signal-2023-09-16-202429_010.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202429_010.jpeg)
+
+# [Lees verder: Deel 5: De Kracht van Positief Denken ]({% link _posts/2023-09-15-deeltvijfpositief.md %})

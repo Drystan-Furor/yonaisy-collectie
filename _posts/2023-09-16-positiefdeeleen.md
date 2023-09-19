@@ -52,7 +52,7 @@ boek vol positiviteit lees je hoe.
 
 ![signal-2023-09-16-202317_010.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202317_010.jpeg)
 
-# [Continue with: Deel 2: De Kracht van Positief Denken ]({% link _posts/2023-09-17-positiefdeeltwee.md %})
+# [Lees verder: Deel 2: De Kracht van Positief Denken ]({% link _posts/2023-09-17-positiefdeeltwee.md %})
 
 
 ![signal-2023-09-16-202429_011.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202429_011.jpeg)
