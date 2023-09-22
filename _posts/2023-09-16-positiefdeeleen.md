@@ -59,8 +59,29 @@ concentreren!
 
 ![signal-2023-09-16-202317_004.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202317_004.jpeg)
 
+### Wanneer je negatieve gedachten door positieve vervangt, zie je al snel positieve resultaten.
+
 ![signal-2023-09-16-202317_005.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202317_005.jpeg)
 
+### Nieuws
+
+Hoewel het misschien moeilijk lijkt om positief te leren denken, valt dat ontzettend mee. Het is vooral een kwestie van
+veel oefenen en anders met zaken om leren gaan. Neem nu bijvoorbeeld het nieuws.
+
+Herken je dit? Je staat 's morgens op en leest de nieuws- berichten (alweer veel mensen dakloos door natuurgeweld,
+alweer veel oorlogsslachtoffers, alweer rellen over iets waar beter een goed gesprek over zou kunnen worden gevoerd). Je
+wordt er moedeloos van. En voor je jezelf kunt tegenhouden, lees je de reacties onder de nieuwsberichten. Mensen die
+elkaar al snel voor rotte vis uitmaken en erger. Niet echt een geweldig begin van de dag.
+Uit onderzoek is dan ook gebleken dat mensen die het nieuws volgen zich mentaal minder goed voelen dan mensen die het
+nieuws niet volgen.
+
+Matt Ridley, voormalig wetenschapsredacteur en correspondent voor The Economist en de auteur van de klassieker De
+rationele optimist, heeft een heel andere kijk op het nieuws. Hij zegt bijvoorbeeld dat de extreme armoede op de wereld
+de afgelopen twintig jaar nagenoeg is gehalveerd. Omdat dat niet nieuwswaardig is, zullen kranten niet snel koppen met
+zulk nieuws.
+Een vliegramp op de voorpagina doet het natuurlijk veel beter.
+
+Om je dag niet te laten beïnvloeden door de nieuwsberichten kun je het volgende doen.
 ![signal-2023-09-16-202317_006.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202317_006.jpeg)
 
 ![signal-2023-09-16-202317_007.jpeg](/assets/img/custom/sorted/signal-2023-09-16-202317_007.jpeg)
